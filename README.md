@@ -1,6 +1,1 @@
-﻿# Lookupos
-# Lookupos
-# Lookupos
-# Lookupos
-# Lookupos
-
+﻿# Cau ja jsem jara a rad bzch ti ukazal svyho kara
